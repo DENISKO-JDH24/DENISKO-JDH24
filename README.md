@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning c ++ and I love play to minecraft
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://www.youtube.com/@denisko_psimfinimfka
+- https://t.me/learnprogramingalone
 - 😄 Pronouns:bro denisko 
 - ⚡ Fun fact: I am twelve
 
